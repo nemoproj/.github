@@ -23,15 +23,3 @@ to preserve our community:
 
 ---
 
-but most importantly,
-
-# watch over you 🔭
-
-*when nobody can*
-
-
-
-
-
-
-dark blue ☭
